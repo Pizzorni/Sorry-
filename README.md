@@ -1,2 +1,2 @@
 # Sorry-
-I am sincere apologetic
+I am sincerely apologetic
